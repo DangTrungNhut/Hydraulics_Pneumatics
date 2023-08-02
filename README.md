@@ -1,5 +1,6 @@
 PROJECT THIẾT KẾ MÁY LÀM BÁNH CHUỐI HẤP TỰ ĐỘNG
-lINK: https://www.youtube.com/watch?v=o7oRmN8ihZQ&t=19s
+
+Link: https://www.youtube.com/watch?v=o7oRmN8ihZQ&t=19s
 
 GV HƯỚNG DẪN: TH.S TƯỞNG PHƯỚC THỌ
 THÀNH VIÊN THỰC HIỆN
